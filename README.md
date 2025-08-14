@@ -1,2 +1,2 @@
 # ChakraSystem
-dobriy mod is gay hahahaha
+I'll start this never lmao
